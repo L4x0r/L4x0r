@@ -1,4 +1,4 @@
-➡️ **ABT :** HELLOHLEOHLEOHELO!!! My name is ***Ahmet***! But I usually prefer ***Laxor/SMG4***, please use them tyty!! My pronouns are ***He/Him***, can call ***They/Them*** aswell, ur choice!
+➡️ **ABT :** HELLOHLEOHLEOHELO!!! My name is ***Ahmet***! But I usually use/prefer ***Laxor/SMG4/Tweek***, please use them tyty!! My pronouns are ***He/Him***, can call ***They/Them*** aswell, ur choice!
 
 ➡️ **BYI :** Im kind of ***Autistic***.. (I hope ur okay with it!)
 
