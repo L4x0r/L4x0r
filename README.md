@@ -4,7 +4,8 @@
 
 ➡️ **C+H :** OMG YAYAYAY ***OFC U CAN***!! I don't mind u doing it tbh :3
 
-➡️ **❤️ :** I love spending time with my friends in ponytown! I also love to make friends, so if u want to be friends, please ask to me!!!
+➡️ **❤️ :** I love spending time with my friends in ponytown! I also love to make friends, so if u want to be friends, please ask to me!!! 
+I also love SMG4, Murder Drones and Tweek! (Not the South Park fandom)
 
 ➡️ **💖 :** Hmm let's see.. All of my friends are like my best friends.. But if I had to choose one.. I would choose ***SMG3 (aka Poofball)***!! Tbh she's the one who I spend most of my time with.
 
